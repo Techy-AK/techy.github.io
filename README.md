@@ -1,1 +1,1 @@
-# techy.github.io
+# techyboi.github.io
